@@ -1,1 +1,1 @@
-Project 20 of WhiteHat Jr. -Krish Garg
+Project 20 of WhiteHat Jr. - UDAY LADDA
